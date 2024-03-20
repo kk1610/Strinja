@@ -1,1 +1,1 @@
-# Strinja
+# STRINJA
